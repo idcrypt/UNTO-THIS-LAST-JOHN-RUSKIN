@@ -1,24 +1,17 @@
-# Terjemahan Buku Shalat Lengkap
+# UNTO THIS LAST
 
-Huseyin Hilmi Isik
+JOHN RUSKIN
 
-Percetakan: Ihlâs Gazetecilik A.Ş.
+This ebook is the product of many hours of hard work by volunteers for Standard Ebooks, and builds on the hard work of other literature lovers made possible by the public domain.
 
-Merkez Mah. Ihlas Plaza No: 11A / 41
+This particular ebook is based on a transcription from Wikisource and on digital scans from the Internet Archive.
 
-34197 Yenibosna-ISTANBUL Tel: 0,212.4543000
+The source text and artwork in this ebook are believed to be in the United States public domain; that is, they are believed to be free of copyright restrictions in the United States. They may still be copyrighted in other countries, so users located outside of the United States must check their local laws before using this ebook. The creators of, and contributors to, this ebook dedicate their contributions to the worldwide public domain via the terms in the CC0 1.0 Universal Public Domain Dedication. For full license information, see the Uncopyright at the end of this ebook.
 
-ISBN: 975-92119-3-9
-
-Sumber https://www.freebookscity.com/terjemahan-buku-shalat-lengkap-44580.html?language=ID
-
-Terjemahan dari Bahasa Turki
-
-Desain Cover: Hariyanto
+Standard Ebooks is a volunteer-driven project that produces ebook editions of public domain literature using modern typography, technology, and editorial standards, and distributes them free of cost. You can download this and other ebooks carefully produced for true book lovers at standardebooks.org.
 
 Disclaimer
 
 Buku ini dimuat oleh idcrypt.xyz diambil apa adanya. Hanya ditambahkan bagian cover sebab tidak ada cover di versi awalnya. Semoga bermanfaat.
 
-LICENSE
-© 2025 Hariyanto a.k.a Agribinka — idcrypt.xyz. Creative Commons License This work is licensed under a Creative Commons Attribution-ShareAlike 4.0 International License . CC BY SA
+LICENSE © 2025 Hariyanto a.k.a Agribinka — idcrypt.xyz. Creative Commons License This work is licensed under a Creative Commons Attribution-ShareAlike 4.0 International License . CC BY SA
